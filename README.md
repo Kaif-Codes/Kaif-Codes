@@ -1,4 +1,4 @@
- ### Hi there, I'm Kaif (He/Him) 👋
+ ### Hi there, I'm Kaif Ahmed (He/Him) 👋
 
 I'm currently studying Advanced Computing at the Australian National University.
 
